@@ -19,4 +19,4 @@ My first repository
 > In order to convince ***the next generations of racers*** that he remains the finest race vehicle in the world, Lightning McQueen sets out to compete.
 >
 > # My insight about favorite series/movie
-> Overall, the reason why cars movie series is my favorite in entire life because how I loved cars that already seen in the city or in the street like sport cars, supercars, hypecars, and electric supercars that made me satisfied and intrest to know about it. 
+> Overall, the reason why cars movie series is my favorite in entire life because how I loved cars that already seen in the city or in the street like sport cars, supercars, hypecars, and electric supercars that made me satisfied and intrest to know about it.
